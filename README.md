@@ -13,7 +13,7 @@
 </br>  <a href="https://faranesh.com/programming/19315-complete-training-to-work-with-maps-in-android-programming"><b>
 **دریافت دوره آموزش کامل کار با نقشه ها در برنامه نویسی اندروید
 </b></a></br>
-</br>  <a href="http://s17.picofile.com/file/8412992600/com_sepahvand_saman_findnearbyplacekotlin.apk.html">دانلود اپلیکیشن  <b>
+</br>  <a href="https://samansepahvand.ir/App/Apk/com.sepahvand.saman.findnearbyplacekotlin.apk">دانلود اپلیکیشن  <b>
 # اسکرین شات ها
 
 
